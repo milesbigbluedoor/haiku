@@ -5,9 +5,7 @@ dimly, sadly, soft
 
 
 
-
-
-
-
-
+azalea bloats
+earthily, tedious raw
+forbidden graveyards
 Goodbye World!
